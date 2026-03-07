@@ -1,2 +1,2 @@
 Demo Video link
-https://drive.google.com/file/d/1wG63UqsWUXP7cjG3f-zILo9EEGEcsmci/view?usp=drivesdk
+https://youtu.be/COqF7N7F0Uc?si=FrBMDXq7i0p6nPgd
